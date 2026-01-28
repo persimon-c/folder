@@ -1,3 +1,3 @@
 # first repo
 
-Simone Pauline Dagondong
+Simone Pauline Dagondon
